@@ -1,1 +1,1 @@
-# Woocommere-Image-Variation-Swatches
+# Woocommere Image Variation Swatches by Bravotheme
